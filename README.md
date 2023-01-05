@@ -1,0 +1,1 @@
+# Kat-bilgi-i-lem-makinesine
